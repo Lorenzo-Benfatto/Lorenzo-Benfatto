@@ -8,6 +8,7 @@
 -  📊 Studying for MSc degree in Theoretical Physics
 -  🌍 I speak fluently Italian 🇮🇹 and English 🇬🇧
 -  🎧 Check what I listen to on <a href="https://open.spotify.com/user/lormex2000?si=a782e66545a5404f" target="_blank">Spotify <img alt="Lorenzo Spotify" width="22px" src="https://upload.wikimedia.org/wikipedia/commons/1/19/Spotify_logo_without_text.svg" /></a>
+-  🔥 Match me on Tinder https://tinder.com/@Lwelldone
 
   <br />
 
