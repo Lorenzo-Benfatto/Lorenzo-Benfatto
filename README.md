@@ -1,5 +1,5 @@
 # Lorenzo Benfatto.
-  <img align="right" alt="GIF" src="https://github.com/Lorenzo-Benfatto/Lorenzo-Benfatto/blob/main/aaaa.gif" width="420" height="270" />
+  <img align="right" alt="GIF" src="https://github.com/Lorenzo-Benfatto/Lorenzo-Benfatto/blob/main/aaaa.gif" width="420" height="420" />
   <br />
   <br />
   
