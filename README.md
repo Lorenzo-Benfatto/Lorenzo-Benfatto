@@ -11,7 +11,7 @@
 -  🔥 Match me on Tinder https://tinder.com/@Lwelldone
 -  🏃 Watch me run on Strava https://www.strava.com/athletes/65737917
 -  🍔 Look at what I eat (?) on MyFitnessPal https://www.myfitnesspal.com/it/profile/benfattolorenzo
--  💰 Send me offerings like I'm some pagan god https://paypal.me/lorenzobenfatto?country.x=IT&locale.x=it_IT
+-  💰 Send me offerings like I'm some pagan deity https://paypal.me/lorenzobenfatto?country.x=IT&locale.x=it_IT
 
   <br />
 
